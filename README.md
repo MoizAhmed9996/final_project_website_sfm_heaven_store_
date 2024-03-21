@@ -1,2 +1,2 @@
-# final_project_website_sfm_heaven_store_
+# final-project-website-sfm-heaven-store.github.io
 Dashenza Fashionable Wearing Brand
